@@ -1,2 +1,0 @@
-# Tugasstbi
-tugas stbi uas
